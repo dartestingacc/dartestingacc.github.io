@@ -1,3 +1,4 @@
-# dartestingacc.github.io
+Brand Product Information
 
-dkjdksdjkdjs
+1. Adored Beast
+2. 
